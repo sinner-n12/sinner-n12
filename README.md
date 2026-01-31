@@ -1,6 +1,6 @@
 <div align="center">
     
-![](https://limbuscompany.wiki.gg/images/Outis_Icon.png)
+![](https://i.postimg.cc/ZYNfmWDy/2025-Merch-Outis-Animate-Sticker.png)
 
 <p align="center" width="100%">
     <img width="33%" src="image">
